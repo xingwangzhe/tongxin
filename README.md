@@ -1,2 +1,1 @@
-# xingwangzhe.github.io
-记录我的学习过程
+苦心人，天不负
